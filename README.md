@@ -1,1 +1,1 @@
-This repository contains the Ordinaries and Antiphons to accompany the Liturgy of the Hours Four Volume Edition. I will be writing many of the antiphons myself. The text is not mine it is from the above mentioned books.
+This repository contains the Ordinaries and Antiphons to accompany the Liturgy of the Hours four volume edition. I will be writing many of the antiphons myself. The text is not mine it is from the above mentioned books.
